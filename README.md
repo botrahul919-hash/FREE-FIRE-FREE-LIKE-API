@@ -1,4 +1,4 @@
-
+like/ind/79487139
 ```markdown
 # 🎮 FREE FIRE FREE LIKE API 🔥
 
